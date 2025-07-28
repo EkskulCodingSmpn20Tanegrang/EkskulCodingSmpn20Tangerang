@@ -1,2 +1,0 @@
-# EkskulCodingSmpn20Tangerang
-Coding
